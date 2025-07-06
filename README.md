@@ -1,12 +1,4 @@
-[Trol indirme](https://mega.nz/file/BZYDXIjS#AXj6vrQ8lVxqKfL3KvJxt4aN8q8RtsZWjGooOIVZZDo)
-
-## Trol açıklama!:
-
-*Başınıza gelenlerden* **TÜRKBOT** *şirketi sorumlu değildir!*
-Acil durum için alt + f4 e art arda basınız!
-Bu dosya şaka amaçlı bir hackidir. Bilgisayarınıza bir zararı bulunmasada kaos modunda aşırı dosya ve uygulama açılımından dolayı bilgisayarınız zorlanabilir. Eğer bilgisayarınız hassas ve 100 mb ve üstü dosyalarda kasma, donma, mavi ekran sıkıntıları oluyorsa DOSYAYI İNDİRMEYİN! Bilgisayarınızın başına gelecek şeylerden sorumlu değiliz. Acil durum için art arda alt + f4 tuşlarına aynı anda basın.
-
-[Bilgisayar Bilgi Sorgulama indir](https://mega.nz/file/UMZiHarJ#pR-998MINmXqsrx14g24ALSIL7X5z_kVtwS-veu1yu0)
+[Bilgisayar Bilgi Sorgulama indir](https://mega.nz/folder/YJxyTQrQ#9S_gtVXymIXVNA1CF2UiGg)
 
 ## Bilgisayar Bilgi Sorgulama açıklama!:
 
